@@ -2,7 +2,7 @@
 
 HI PLS READ !! :3
 
-<img width="716" height="420" alt="Image" src="https://github.com/user-attachments/assets/35ef0a76-d014-4eee-9e8e-1ee7a0cba13f" />
+<img width="600" height="434" alt="Image" src="https://github.com/user-attachments/assets/8e929e08-4ccf-4545-87af-fc6a8236bb1d" />
 
 ₊˚ ‿︵‿︵‿︵‿︵‿︵୨୧ · · 🦇 · · ୨୧‿︵‿︵‿︵‿︵‿︵ ˚₊
 
