@@ -2,8 +2,8 @@
 
 HI PLS READ !! :3
 
-<img width="600" height="434" alt="Image" src="https://github.com/user-attachments/assets/8231dc8b-6926-4b0a-87b5-15ec3b499a1d" />
-<br>
+<img width="716" height="420" alt="Image" src="https://github.com/user-attachments/assets/35ef0a76-d014-4eee-9e8e-1ee7a0cba13f" />
+
 ₊˚ ‿︵‿︵‿︵‿︵‿︵୨୧ · · 🦇 · · ୨୧‿︵‿︵‿︵‿︵‿︵ ˚₊
 
 🦇
@@ -30,7 +30,6 @@ have a nice day / night !!! ~
 
 # thank you for reading ! (⁠✷⁠‿⁠✷⁠)
 
-![Image](https://github.com/user-attachments/assets/905815fc-7f1e-4d2d-a71e-508f3a8852a0)
-
+<img width="716" height="420" alt="Image" src="https://github.com/user-attachments/assets/35ef0a76-d014-4eee-9e8e-1ee7a0cba13f" />
 ₊˚ ‿︵‿︵‿︵‿︵‿︵୨୧ · · 🦇 · · ୨୧‿︵‿︵‿︵‿︵‿︵ ˚₊
 
